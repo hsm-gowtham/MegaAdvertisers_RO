@@ -1,1 +1,0 @@
-# MegaAdvertisers_RO
